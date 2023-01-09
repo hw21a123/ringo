@@ -15,3 +15,11 @@
 ・唐揚げ
 
 ・ラーメン
+
+##好きな歌手（中田）
+
+・King　Gnu
+
+・Mrs. GREEN APPLE
+
+・Ado
